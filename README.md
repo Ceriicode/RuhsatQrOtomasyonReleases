@@ -1,0 +1,1 @@
+QR Otomasyonu Guncelleme Deposu
